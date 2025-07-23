@@ -6,3 +6,7 @@ Welcome to my github, i dont exploit anymore, but here are some scripts i have i
 
 
 sike i still exploit lol, but this github account is just my archive 🙂
+
+
+
+some scripts are skidded, but its okay, me before 2024 is not real 😭✌️
